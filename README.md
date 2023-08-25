@@ -8,7 +8,3 @@
 Тестовое исполнение
 Август 2023
 
-
-
-## "Андантино". Хачатурян
-https://www.youtube.com/watch?v=TvtdHSOcgkY
